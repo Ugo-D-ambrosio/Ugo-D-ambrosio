@@ -1,6 +1,6 @@
 - 👋 Salut , Je m'appel Ugo D'AMBROSIO
 - 👀 Je suis interesser par les projets avec ambitions d'ameliorer le futur.
-- 🌱 I’m currently learning ...
+- 🌱 Je suis en apprentissage dans la cybersécurité
 - 💞️ I’m looking to collaborate on ...
 - 📫 Contactez moi par mail ugodambrosio13@gmail.com
 
